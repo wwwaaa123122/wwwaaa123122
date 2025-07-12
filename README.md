@@ -1,1 +1,1 @@
-A middle school student from Chinese.
+A middle school student from China.
